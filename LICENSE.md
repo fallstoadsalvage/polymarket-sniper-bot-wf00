@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with automatic Polymarket Strategy | sentiment-analysis + automated-trade-execution, the #1 strategy. Includes sentiment-analysis and
 
 
 
